@@ -31,4 +31,6 @@
 
 
 # DOGRULAR TEKDİR DEGİŞMEZ EKİP AFFETMEZ.
+![image](https://media.discordapp.net/attachments/1194474496204226681/1194500750135545866/image.png?ex=65b09483&is=659e1f83&hm=c0eb750aa911c4911d5649ba63c18f04e236a9656a5f895faa56724022348c04&=&format=webp&quality=lossless&width=670&height=49)
+
 <a href="#" class="btn btn-danger" style="color: white; font-size: 20px;">Öptüm Aniden rainha</a>
