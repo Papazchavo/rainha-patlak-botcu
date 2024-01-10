@@ -1,7 +1,7 @@
 <a href="#" class="btn btn-danger" style="color: red; font-size: 20px;">P A P A Z</a>
 - Sana ait olmayan bir botu bir sunucudan para alarak ve zorbalayarak kurmana izin verdirtmem aynı şekilde ortağım papaz da bu duruma izin vermez ki bulunduğun ortamlar papazla benim ortamlarım kendini ramal,papaz,ancient,ravgar githublarında görürsün ve aynı şekilde bot paylaştığımız youtube kanalımızda görürsün he bu arada githubındaki botun ozi v13 olduğunu tüm dünya alem biliyor o yüzden kendini daha fazla rezil etme hadi allaha emanet .
 
- - Repodaki Aşklar ravgar,ramal,ancientchavo.
+ - Repodaki Aşklar ravgar,ramal,ancientchavo. Bunlara prim vermeyin gidin bu ekip yapdırın botları xd.
 
 ![image](https://media.discordapp.net/attachments/1194474496204226681/1194498489246290060/8.png?ex=65b09268&is=659e1d68&hm=a617604eb7238bdb6097606e2ae3d2a1d7b60877b50d1feb848cd9010508ca26&=&format=webp&quality=lossless&width=268&height=265)
 
