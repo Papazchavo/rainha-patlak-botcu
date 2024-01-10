@@ -1,6 +1,7 @@
-![image](https://github.com/Papazchavo/rainha-patlak-botcu/assets/116741003/ba7585fc-edde-46f9-a493-c60972f7cd0c)![image](https://github.com/Papazchavo/rainha-patlak-botcu/assets/116741003/44b866fc-e698-46d8-999c-cf2476a0556d)<a href="#" class="btn btn-danger" style="color: red; font-size: 20px;">P A P A Z</a>
-# sana ait olmayan bir botu bir sunucudan para alarak ve zorbalayarak kurmana izin verdirtmem aynı şekilde ortağım papaz da bu duruma izin vermez ki bulunduğun ortamlar papazla benim ortamlarım kendini ramal,papaz,ancient,ravgar githublarında görürsün ve aynı şekilde bot paylaştığımız youtube kanalımızda görürsün he bu arada githubındaki botun ozi v13 olduğunu tüm dünya alem biliyor o yüzden kendini daha fazla rezil etme hadi allaha emanet . [image](https://github.com/ravgar/Hex-Owsla-Ablam/assets/97904458/2672f03c-cadc-48cc-9b55-8241b01e47e7)
+<a href="#" class="btn btn-danger" style="color: red; font-size: 20px;">P A P A Z</a>
+# sana ait olmayan bir botu bir sunucudan para alarak ve zorbalayarak kurmana izin verdirtmem aynı şekilde ortağım papaz da bu duruma izin vermez ki bulunduğun ortamlar papazla benim ortamlarım kendini ramal,papaz,ancient,ravgar githublarında görürsün ve aynı şekilde bot paylaştığımız youtube kanalımızda görürsün he bu arada githubındaki botun ozi v13 olduğunu tüm dünya alem biliyor o yüzden kendini daha fazla rezil etme hadi allaha emanet .
 
+# Bu arkadaşın discord hesapı ![image](https://media.discordapp.net/attachments/1194474496204226681/1194498489246290060/8.png?ex=65b09268&is=659e1d68&hm=a617604eb7238bdb6097606e2ae3d2a1d7b60877b50d1feb848cd9010508ca26&=&format=webp&quality=lossless&width=268&height=265)
 
 ![image](https://media.discordapp.net/attachments/1194474496204226681/1194498427892015134/1.png?ex=65b09259&is=659e1d59&hm=bde1bd374b403e98d8eaecf8fb1cf533532fdbb3b34aa2abde74160b30b2b7b7&=&format=webp&quality=lossless&width=302&height=144)
 
@@ -26,6 +27,7 @@
 
 ![image](https://media.discordapp.net/attachments/1194474496204226681/1194498534687391744/14.png?ex=65b09273&is=659e1d73&hm=ab689c222071174425c1bdeab2791f77a2fa937a8db58d92825caada888a807c&=&format=webp&quality=lossless&width=284&height=385)
 
-# ALTYAPI'LARIN ASIL SAHİBİ
+
+# DOGRULAR TEKDİR DEGİŞMEZ EKİP AFFETMEZ.
 
 <a href="#" class="btn btn-danger" style="color: white; font-size: 20px;">Öptüm Aniden rainha</a>
