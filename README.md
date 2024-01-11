@@ -30,7 +30,7 @@
 ![image](https://media.discordapp.net/attachments/1194474496204226681/1194498534687391744/14.png?ex=65b09273&is=659e1d73&hm=ab689c222071174425c1bdeab2791f77a2fa937a8db58d92825caada888a807c&=&format=webp&quality=lossless&width=284&height=385)
 
 
-# DOGRULAR TEKDİR DEGİŞMEZ EKİP AFFETMEZ.
+# DOGRULAR TEKDİR DEGİŞMEZ EKİB AFFETMEZ.
 ![image](https://media.discordapp.net/attachments/1194474496204226681/1194500750135545866/image.png?ex=65b09483&is=659e1f83&hm=c0eb750aa911c4911d5649ba63c18f04e236a9656a5f895faa56724022348c04&=&format=webp&quality=lossless&width=670&height=49)
 
 <a href="#" class="btn btn-danger" style="color: white; font-size: 20px;">Öptüm Aniden rainha</a>
